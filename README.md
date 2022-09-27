@@ -1,0 +1,2 @@
+# AJUDE-O-ASTRONAUTA
+Frederic é um agente espacial que foi enviado numa missão interplanetária para estudar e, possivelmente, encontrar VIDA fora da Terra! E foi o que ele encontrou! Mas eles não foram bons recepcionistas… o SEU dever é ajudá-lo a voltar para casa. Oh não! Eles criaram um campo de força! Não há como desviar… você precisa conduzir Fred até a nave, passando pelos monstros desgovernados. Boa sorte!
